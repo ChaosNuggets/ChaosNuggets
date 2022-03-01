@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ChaosNuggets
-- 👀 I’m interested in engineering, computer science, physics, math, and playing Minecraft and Roblox.
+- 👀 I’m interested in engineering, computer science, physics, math, and playing Minecraft, Roblox and Osu.
 - 🌱 I’m currently learning coding on my own so my knowledge is really scattered.
 - 💞️ I’m looking to collaborate on not really anything.
 - 📫 How to reach me: Discord: ChaosNuggets#9972
